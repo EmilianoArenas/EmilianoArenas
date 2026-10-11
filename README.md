@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI and technologies
 - 🌱 I’m currently learning whatever interests me
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me? my page: arecodes.xyz
+- 📫 How to reach me? my page: emiliano.lol
 - ⚡ Fun fact: I like playing videogames with friends
 
 <!---
